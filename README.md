@@ -1,7 +1,7 @@
 - 👋 Hi, I’m moka
 - 👀 I’m interested in art
 - 🌱 I’m currently learning something
-- 💞️ I’m looking to collaborate on something
+- 💞️ I’m looking to collaborate with somebody
 - 📫 How to reach me just contact me on instagram @moch_khafid
 
 <!---
